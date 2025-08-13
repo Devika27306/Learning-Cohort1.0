@@ -58,6 +58,3 @@ If you want to reach out, check out my portfolio or message me here on GitHub. I
 
 
 
-
-
-ChatGPT can make mistakes. C
